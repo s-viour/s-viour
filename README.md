@@ -1,1 +1,1 @@
-hiiii
+Computer Science graduate (B.S.) experienced in high-performance/reliability systems and data science/scientific computing. Up-to-date on modern practices! Seeking an entry-level position in either of the two fields that utilize my experience & interest in systems.
